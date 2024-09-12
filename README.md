@@ -1,2 +1,4 @@
-# <p align="center"> ![](https://i.imgur.com/rEKeZgG.png)
-<p align="center">Kaz or Victor, prns he & any <p align="center"> I LOVE ZENO! <p align="center"> wip, experimenting around
+# <p align="center"> ![](https://i.imgur.com/DnW92xF.png)
+### <p align="center">ZENO HYPERFIX
+#### <p align="center"> [rentry](https://rentry.co/maenoakiR34)    [atabook](https://fujodose.atabook.org)    [strawpage](https://yaoireigen02.straw.page)
+#### <p align="center">ask 4 socials ^q^
